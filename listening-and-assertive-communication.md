@@ -1,3 +1,4 @@
+# Listening and Communication Skills – Assignment 
 ## What are the steps/strategies to do Active Listening? (Minimum 6 points)
 - Focus and attention
 - Be patient
