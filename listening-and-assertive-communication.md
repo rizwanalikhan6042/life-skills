@@ -4,7 +4,7 @@
 - Show non verbal clues
 - Take notes
 - Ensure clearity
-- Show Non-Verbal Cues
+- Also notice body language
 
 ## According to Fisher's model, what are the key points of Reflective Listening? (Write in your own words, use simple English)
 - focus on the conversation
